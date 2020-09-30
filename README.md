@@ -1,3 +1,12 @@
+更多学车资料全部在potato 聊天软件群里面，免费分享更新。
+安卓版下载地址https://m.youxi369.com/apps/12672.html
+苹果版下载指导～https://jingyan.baidu.com/article/636f38bb1f24a997b84610d4.html
+安装后加我potato帐号【klyhtb】。也可以搜【kuaileyihao】加土豆群。
+小奶猫直播下载网址
+（复制链接到浏览器打开下载） ： 
+http://5iw9.com/1825128
+ http://rxq2.com/1825128
+推荐使用网站！
 https://zzzu1s1.me/
 https://8x2298x.com/
 https://5g36m.com/h/dalu/
